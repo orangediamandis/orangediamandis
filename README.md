@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @orangediamandis
 - 👀 I’m interested in eclectic shitposting, yak or whale milk, and Mithridatism.
 - 🌱 I’m currently learning to use my cult personality for evil. 
-- 💞️ I’m not looking to collaborate with anyone other than my one and only 74/100 god of awkward situations.
+- 💞️ I’m not looking to collaborate with anyone other than my one and only god of awkward situations.
 - 📫 How to reach me: intense prayer, blood orgy, or leaving tea next to an ear of corn can all entice me to materialise.
 
 <!---
